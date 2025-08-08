@@ -1,0 +1,1 @@
+# CodeAlpha_HardCoded_Stocks
